@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with new NFT Bot for nft wash trading bot | wash-trading-detection & royalty-calculator, the #1 nft wash trading bot. Includes wash-trading-detection and
 
 
 
